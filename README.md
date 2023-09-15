@@ -1,2 +1,33 @@
-# projeto como escrever um README file
+# COMO DIMINUIR A CRIMINALIDADE JUVENIL?
+> TALVEZ MUITOS PENSEM EM LEIS MAIS SEVERAS, MAIS CADEIAS, MAS SE ESQUECEM DO BASICOS QUE SAO ESSES 6 TOPICOS
+
+* Gerar empregos para os jovens. ...
+* Investir em educação. ...
+* Melhorar o tratamento de viciados em drogas. ...
+* Bolsa Formação. ...
+* Apoiar a família. ...
+* Melhorar a reinserção social de menores infratores.Gerar empregos para os jovens. ...
+* Investir em educação. ...
+* Melhorar o tratamento de viciados em drogas. ...
+* Bolsa Formação. ...
+* Apoiar a família. ...
+* Melhorar a reinserção social de menores infratores.
+
+  > # hoje o estado foca mais em zonas ricas, e se esquece das comunidades
+  > 
+* muitos jovens sao mortos pelas suas vestes, ate mesmo cor
+* ninguem ve as dificuldades, o sonho dos jovens
+  
+  # so pensam em
+  
+  >prender
+  
+  >matar
+
+#  com violencia, repressao nao se resolve.
+  > 
+* jugar e facil mas ningume ve nossas dificuldade e sonhos
+
+
+* vamos julgar menos, vamos ter menas violencia, e dar o basico aos jovens que se joga a crime por sofrerem as consequencias de nao ter uma estrutura familiar.
 
